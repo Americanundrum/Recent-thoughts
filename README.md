@@ -3,7 +3,7 @@
 <p align="center">
 <img width="100" src=https://imgur.com/ozElZ0S.png>
 <p align="center">
-"IF I HAD A NICKEL FOR EVERY TIME I'VE BEEN ON THE VERGE, MY WALLET WOULD LIKE THOMAS JEFFERSON'S SHRINE"
+"IF I HAD A NICKEL FOR EVERY TIME I'VE BEEN ON THE VERGE, MY WALLET WOULD LOOK LIKE THOMAS JEFFERSON'S SHRINE"
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 <p align="center">
