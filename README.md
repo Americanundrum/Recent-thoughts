@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 <p align="center">
-Recent thought lately - every time i meet someone they start getting comfortable within the first day and then they start venting to me. I get it, you're dealing with mental stuff, I mean you met me on either Discord or Ponytown and i know how people tend to be on there, but come on.. You're kinda just venting to me without warning, and they always have something in their status like "dni, i just cut myself". Buddy that's not something I want to know. and i get that's what statuses are for but come on, seriously? Don't get me wrong, i'd love to help them it's just that it's been a real bad pattern and i just don't want people venting to me but i can't do much if they do because then they'll get sad and stuff.
+I've learned that i can voluntarily dislocate my shoulders. It doesn't hurt but it sure as hell is fun to play with. It's like how I like to slide my kneecaps around when i'm bored (they're used to dislocating a lot for no reason, but it doesnt hurt either and I've gotten used to it)
