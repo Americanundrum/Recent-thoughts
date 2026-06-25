@@ -3,8 +3,8 @@
 <p align="center">
 <img width="100" src=https://imgur.com/ozElZ0S.png>
 <p align="center">
-  I wish I wasn't gay
+TADC fans and their inherent nature to be obnoxious
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 <p align="center">
-he will never love me
+  insufferable
