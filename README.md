@@ -3,8 +3,8 @@
 <p align="center">
 <img width="100" src=https://imgur.com/ozElZ0S.png>
 <p align="center">
-Haha
+Am I a bad person
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 <p align="center">
-Everything is better when I'm talking to him. Everything.
+everyone says im smart and pretty and cool and stuff but i feel so sick. im staring at food ive prepared for myself, for breakfast, but i cant get myself to eat it. my stomach hurts because i havent eaten yet, but it also hurts more looking at the food. it makes me want to throw up. i dont deserve this food. do my friends really like me as they say they do. do they trust me. why cant they trust me, ijust want to know whats wrong with me. i know my friends love me but what if they dont. i feel like im constantly running from myself and i want to catch up and beat myself to death for thinking any of these things. my family doesnt care about how i feel. it feels like my friends dont think of me often. the only person who has shown me so much love and attention and adoration is my boyfriend but when hes away, i feel emptier. i dont want to cling onto him though, i mean i function fine without him but i think it's because he distracts me. i dont want him to distract me, i want to desire him for just existing. i think it's because im running away from my emotions. of how i worry people feel about it and whether they trust me or not. i want people to trust me. come on. just a bit here and there. right. why cant people tell menanything. this has happened so much. i wish people were transparent with me. am i awful. am i an awful person. my thoughts are so disjointed. i feel like im not worth anything at all. i want to cry but my medicine is stopping me. i cant let out any tears no matter how much i want to. i just want to cry do they not care about me why cant they tell me why is this happening to me what have i dont whatdid i do wrong why am i the one getting this treatment why why whyw hy why why why why why why why why 
