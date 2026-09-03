@@ -3,8 +3,10 @@
 <p align="center">
 <img width="100" src=https://imgur.com/ozElZ0S.png>
 <p align="center">
-college is nice
+You murder drones fans make me want poke you in the eye
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-college is putting me at ease. this is nice, calm.. calm before the storm. the days are getting colder. ive gotten a bunch of supplies for my dorm. my roommate is great. ive been... thinking a lot. i dont know what to say right now, other than it's alright and i'm content. i love everything, and i love my frinds above all.
+there is an entire south free for your use and you choose the fandom that is actually actively alive. 
+
+oh but anyway, i'm thinking about revamping my github soon. i've gotten better at HTML anyway so i should probably work on that. A lot of things have changed.
