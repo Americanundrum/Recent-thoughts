@@ -3,16 +3,14 @@
 <p align="center">
 <img width="100" src=https://imgur.com/ozElZ0S.png>
 <p align="center">
-  I am lost on many things
+  bro
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-My beloved, forever then and now and onward. He's always there for me. I wish he felt better, I know he hurts a lot but he doesn't often tell me what is troubling him. Maybe it's a fear of getting me worried. There's still a long, long way to go and many things to be figured out before we progress. I love him. 
+is being on an athletic team considered self harm. everything hurts like a bitch. i feel like i deserve it though. and to be real it is pretty satisfying. but anyway that isnt important since it's actually helping me build strength. 
 
-He's the only one there for me in a time like this. My mental health is staggering but it's still strong. I'm standing still, and I'm fighting. But I'm so lost inside. As the days go on the angrier I get. I'm getting impatient on myself on why I can't figure things out any faster, I feel slow and behind, and I've been trying to use my happy playlist to get me to lighten up. It's working a little bit. My questions lie in clarity, and as of now it feels like nothing is clear at all. But I've learned a few things.
-1: It isn't my fault.
-2: I should still strive to be better.
-3. I will never be perfect for everyone, and that's okay.
-4: They're missing out on how great I am.
-My own behavior is almost obsessive because of how focused I am on these facets of others, trying to find faults in their character and how I could fill those holes. Ultimately, I'm not responsible for the shortcomings of others. I can beg and cry for them to do better, but at the end of the day, it's on them to listen. What if they don't, then what? That is also not my fault!!! I've learned the kind of people they are. I know their habits. Sometimes, I'm just weak to guide them to where they should be.
-5. I have a minor savior complex that I need to control.
+where am i finding these genuine specimens like holy fuck i dont think ive texted anyone except my boyfriend and like two others in a few days because of this why is this the shit thats happening to me the moment i manage to get buddy buddy with something WHAT DID I DO WRONG </3
+
+i do not want an avoidantly attached person or an anxiously attached person... I want a normally attached person!!! this is so exhausting im so tired of having to ask what im doing wrong and if im enough all the time oh my lord dude it's like supply and demand im actually gonna kms wtfff wtf wtf wtf this is fucked up please dont leave me for a mf on c.ai are we deadass FUCK OFF
+
+i hate all of you. sincerely, i hate what you do to me. i hate how you frame me, and i hate what you think i am after. i hate that you dont understand what i need or want, i hate that you think im a bad person for not meeting your stupid fucking standards. i wont bother reaching out again, i feel like im not enough, and although the highs were truly highs, the lows were the lowest of lows.
