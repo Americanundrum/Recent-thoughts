@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-i hate myself
+is this a losing game. it feels like im losing. but i look around me and im surrounded by love. but i feel like im losing.
