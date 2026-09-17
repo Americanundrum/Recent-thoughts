@@ -3,8 +3,8 @@
 <p align="center">
 <img width="100" src=https://imgur.com/ozElZ0S.png>
 <p align="center">
-  it isn't alright
+  oh
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-it isnt the same. it's not the same. ive lost two people, it FEELS like i've lost more. i miss them so much all for different reasons. but i cant say it, i cant say such a thing that may hurt me. im so exhausting, please, i just need some company. im so tired. im so fucking tired im so tired im so tired nothing will ever replace them and i feel awful and horrible and i cant cry too loud, i dont want my roommate hearing. and if i do cry, i do it in an isolated room open all day. i miss my friends. i miss feeling like i had that platonic support bolstering me. crazy how two people can mean so much to me as friends. im tired of trying to convince myself that i'm doing alright, i'm not, i'm off my medicine, i'm seriously going insane. im trying to ration it! i just want them back!
+shes stalking me. shes stalking me i know it. i'm only so glad she doesnt know what this is, i hate her, i seriously hate her. she wants to find everything about it. i hate it. i just want my old friend back. where is the old svina i know? the one who made me smile and laugh? the svina that held our friendgroup like a mother to its child? where is she?? i've lost her, and i miss her. i miss her. i miss her. i miss my old svina. but she's gone. i mourn people who are still alive. i hope my dear friend comes back to our arms, i dont know what drove her this way.
