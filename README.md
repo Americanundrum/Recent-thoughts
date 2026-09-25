@@ -9,7 +9,7 @@
 
 **this month, I'm depressed, like I always am.**
 
-it's like I'm in the backseat of my own mind when i have to be. i'm great at academics and athletics, but most of the time i'm not even enjoying them much. they feel like a chore now, even the things i used to be interested in feel like a job. Everything feels like homework. When it's all calm and I have nothing to do, i sit there. i sit there holding the steering wheel of my stupid brain and i stare at myself thinking what i couldve done better. there's not much i can change about the past though, is there. i feel nothing and everything at the same time these days. i'm jumpier, my emotions are backed by fear, and that way they're so much worse. when i'm mad, i'm furious, when i'm happy, i'm ecstatic. do you know that feeling when you have so much hopelessness and dread inside you, you can't help but laugh? that's how it is. my body is a liability.
+it's like I'm in the backseat of my own mind when i have to be. i'm great at academics and athletics, but most of the time i'm not even enjoying them much. they feel like a chore now, even the things i used to be interested in feel like a job. Everything feels like homework. When it's all calm and I have nothing to do, i sit there. i sit there holding the steering wheel of my stupid brain and i stare at myself thinking what i couldve done better. there's not much i can change about the past though, is there. i feel nothing and everything at the same time these days. i'm jumpier, my emotions are backed by fear, and that way they're so much worse. when i'm mad, i'm furious, when i'm happy, i'm ecstatic. do you know that feeling when you have so much hopelessness and dread inside you, you can't help but laugh? that's how it is. my emotions are all over the place and swing from extreme to extreme. my body is a liability.
 
 **this month, i'm a bad person.**
 
@@ -22,7 +22,9 @@ i think the best way that i've been shown romantic love this month has been thro
 **this month, i made new friends.**
 
 it's odd. some people do look up to me i guess. three people approached me lately and and asked if they could be friends with me. that's how i met suka and tank and redcoat. speaking of redcoat, it turns out that he and i are going through a very very similar situation. it got me excited. i feel awful for saying it, but i want him to focus more on me now. he's scared about his friendships and so am i. and we've done awful things to ourselves because of it. i like that, i like him. i understand him. i want to replace his friends and show him that i'm better and that i'm worthy, that he doesn't need scum like them. all he needs is a new person like me. he treats me well. he's a good friend. one time i cried because he made me really nice art. look at this exchange.
+
 .......................
+
 me -> "hey i thought we were friends or so,ething..."
 
 "WE ARE FRIEMDS..?
@@ -33,7 +35,9 @@ through this dynamic, the label can be applied"
 
 "YES?
 I care for you always!"
+
 .......................
+
 i want to show him how much better i can be. i think, in my eyes, he's my new hope. i'll show his stupid 'friends' the kind of person they lost and how i won him. 
 
 i also approached someone to be my friend this month. they're an artist i've been looking up to, actually. they're hilarious, their art is great, it makes me happy. i asked if we could collab and they really liked my art, an we started talking more and we hit it off. seriously, and they told me that they saw me as a friend and that i made their days more interesting. ⚬, theyve helped me laugh more. they're really cool too, ⚬ lives in Yakutsk and they're Sakha. that's freezing cold.. they also like modern history and politics just like i do. we have a lot of similarities. their humor is great, they make me feel like.. they make me feel like i can have friends again. like i can socialize and that i'm not in second place. they make me feel like i fucking matter. i'm not set aside this time, they make me laugh so much and theyre actually interested in me. can you imagine? they actually talk to me like i matter. ⚬ asks me these questions about my countries and then i ask them about theirs. it's like i actually matter in someone's life now. 
