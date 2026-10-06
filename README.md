@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-all i do is bitch and cry. im so desperate im so desperate for that high again. i'll never get it back though, will i.
+these friendships are transactional. i do my part, they should do theirs. and the good news is i haven't hurt anyone and i don't plan to, so good job on my part, i've just been moping to myself. 
