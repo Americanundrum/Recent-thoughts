@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/xosEB48.png>
 
-this is it. this is just how it is. i mean, it sucks that i have to accept it. but that's kind of how it is. such is life, right? i cant change anything.
+i want to start all over again and fix myself
