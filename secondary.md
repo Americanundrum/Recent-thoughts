@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/xosEB48.png>
 
-i want to start all over again and fix myself
+god why am i so mentally ill why do i keep isolating myself and pushing people away
