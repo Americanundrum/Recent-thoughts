@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/xosEB48.png>
 
-god why am i so mentally ill why do i keep isolating myself and pushing people away
+this started with her. it's all her fault. her and her stupid friends that hate me for what she did. it's her fault.
