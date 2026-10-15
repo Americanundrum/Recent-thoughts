@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/xosEB48.png>
 
-this started with her. it's all her fault. her and her stupid friends that hate me for what she did. it's her fault.
+do you ever stop to wonder why im doing this and how it could be your fault.
