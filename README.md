@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-why is everyone being so dehumanizing to me. i dont know what i did wrong. 
+people are trying to use me, theyre trying to hurt me behind my back. they know what theyre doing and i guess my feelings arent too big but ive cried over it. it hurts you know? hurts a whole lot. 
