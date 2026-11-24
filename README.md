@@ -7,4 +7,4 @@
 <p align="center">
 <img width="500" src=https://imgur.com/6VFtyin.png>
 
-why is it always the people i dont want bothering me that are always up my ass. i'll text you when i'm able to. how hard is it to get that? for fucks sake. it isnt a hard concept. i'm so tired today and it's so exhausting and everyone is pissing me off. i wish i could punch everyone in the face. im tired im tired im tired im tired im tired how is that so hard to grasp it isnt i isnt hard to understand why dont you ever get a fucking hint huh im tired.
+this emotion i feel weighs me down. although i'm more stable, i'm still rather unhappy. i get irritated. it's rather frustrating when i'm in a bad mood and all other people seem to do is drag it down. i want to keep pushing people away. i want to marinate all alone and curl up in a little ball. this feeling is horrible, isnt it.
